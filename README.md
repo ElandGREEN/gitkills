@@ -1,3 +1,3 @@
 # gitkills
 new
-fuck you
+fuck me
