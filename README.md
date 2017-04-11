@@ -1,3 +1,3 @@
 # gitkills
 new
-fuck me
+fuck fake
